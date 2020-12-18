@@ -1,1 +1,0 @@
-# JotaroOfRivia.github.io
